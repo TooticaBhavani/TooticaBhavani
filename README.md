@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **bhavanibunny420@gmail.com**
 
-- 📄 Know about my experiences [file:///C:/Users/bhava/Downloads/T.BHAVANI_RESUME.pdf](file:///C:/Users/bhava/Downloads/T.BHAVANI_RESUME.pdf)
+- 📄 Know about my experiences (file:///C:/Users/bhava/Downloads/T.BHAVANI_RESUME.pdf)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
